@@ -1,0 +1,1 @@
+# predskazanie_startapov
